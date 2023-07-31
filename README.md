@@ -4,4 +4,6 @@ AB PONYTOWN😦: feel free to sit with me, interact with me, do whatever u want,
 
 Interests: splatoon, identityV, zelda (totk), Cookie run Kingdom, kof, stardew valley, brawl stars, flcl, csm, evangelion n yk, more..
 
+note: i have my saturation up in game, skin colors might look different
+
 ciao
