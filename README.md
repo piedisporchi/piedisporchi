@@ -1,9 +1,7 @@
 boh, palle
 
-AB PONYTOWN😦: feel free to sit with me, interact with me, do whatever u want, at any moment, semiafk most of the time but i will answer asap !
+AB PONYTOWN: idm any int but semiafk most of the time and i will answer asap
 
-Interests: splatoon, identityV, zelda (totk), Cookie run Kingdom, kof, stardew valley, brawl stars, flcl, csm, evangelion n yk, more..
+Interests: splatoon, identityV, Cookie run Kingdom, zelda (totk), kof, stardew valley, brawl stars, flcl, csm, evangelion n yk, more..
 
 note: i have my contrast and saturation up in game, skin colors might look different
-
-ciao
