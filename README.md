@@ -1,6 +1,6 @@
-boh, palle
+el em ay yo bohooo
 
-AB PONYTOWN: idm any int but semiafk most of the time and i will answer asap
+AB PONYTOWN: i dont mind any interaction but i might be semiafk most of the time (whisper if away status, i will answer asap
 
 Interests: splatoon, Cookie run Kingdom, jjba, zelda (totk), identityV, kof, stardew valley, brawl stars, flcl, csm, evangelion n yk, more..
 
