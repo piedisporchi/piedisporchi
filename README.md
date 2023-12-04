@@ -1,4 +1,4 @@
-el em ay yo bohooo
+lol !!
 
 AB PONYTOWN: i dont mind any interaction but i might be semiafk most of the time (whisper if away status, i will answer asap
 
