@@ -3,7 +3,8 @@ lol !!
 AB PONYTOWN: feel free to interact !! i might be afk most of the time (whisper if away status, i will answer asap
 
 ![image](https://github.com/piedisporchi/piedisporchi/assets/140103880/e8afece6-bae8-4f73-93a7-33e821151aa4)
-Interests: splatoon, Cookie run Kingdom, jjba, zelda (totk), identityV, kof, stardew valley, brawl stars, flcl, csm, evangelion n yk, more.. ![Uploading image.gif…]()
+Interests: splatoon, Cookie run Kingdom, jjba, zelda (totk), identityV, kof, stardew valley, brawl stars, flcl, csm, evangelion n yk, more.. ![image](https://github.com/piedisporchi/piedisporchi/assets/140103880/0ab8e009-8ec4-4294-bca5-5dc0177125af)
+
 
 
 note: i have my contrast and saturation up in game, skin colors might look different
