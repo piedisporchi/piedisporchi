@@ -1,4 +1,4 @@
-lol !! "THE edgar cosplayer"
+"THE edgar cosplayer"
 
 AB PONYTOWN: feel free to interact !! i might be afk most of the time (whisper if away status, i will answer asap.   
 
