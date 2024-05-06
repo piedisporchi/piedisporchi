@@ -15,7 +15,8 @@ note: i have my contrast and saturation up in game, skin colors might look diffe
 
 
 pic of the moon i took !
-![image](https://github.com/piedisporchi/piedisporchi/assets/140103880/33752a90-f925-441f-9563-791ceec27594)
+![image](https://github.com/piedisporchi/piedisporchi/assets/140103880/c0c6e14c-3388-4ce4-b275-55016c43a6e5)
+
 
 
 
