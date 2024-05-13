@@ -2,7 +2,7 @@ AB PONYTOWN: feel free to interact !! i might be afk most of the time (whisper i
 
 -> i draw pony ocs for free (just ask!!)
 
-Interests: splatoon, Cookie run Kingdom, jjba, zelda (totk), identityV, kof, stardew valley, brawl stars, flcl, csm, evangelion n yk, more.. 
+Interests: Splatoon, IdentityV, Cookie run Kingdom, JJba, zelda (totk), kof, stardew valley, brawl stars, flcl, csm, evangelion n yk, more.. 
 
 
 note: i have my contrast and saturation up in game, skin colors might look different
