@@ -1,4 +1,4 @@
-AB PONYTOWN: feel free to interact !! i might be afk most of the time (whisper if away status, i will answer asap.   
+AB PONYTOWN: feel free to interact n sit w me !! i might be afk most of the time (whisper if away status, i will answer asap.   
 
 -> i draw pony ocs for free (just ask!!)
 
